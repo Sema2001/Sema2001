@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sema2001 (Asmaa is my actual name)
+- 👀 I’m interested in coding design digital painting and gaming(sometimes) =p
+- 🌱 I’m currently a computer science college student and I am looking for remote job(I am more interested in mobile dev and frontend web dev)
+- 📫 How to reach me : my number is 0618384587 --- my gmail : asmaa.benhaili.tr@gmail.com
